@@ -7,7 +7,7 @@ Newcastle University - 2019/20 - 2nd Year
 
 Marks and Feedback
 
-	Exercise 1:
+	EXERCISE 1:
 
 	Marks: Cancelled due to COVID19
 	Feedback: 
